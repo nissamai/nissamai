@@ -16,7 +16,7 @@ My approach to software engineering is a little harder to summarize, but I basic
 ## Online Presence
 
 - Reach out professionally: [LinkedIn](https://www.linkedin.com/in/nissamai/)
-- Check out my silly little hobby band: [Tunnel Street](https://tunnelstreet.bandcamp.com/)
+- Check out my rock band: [Tunnel Street](https://tunnelstreet.bandcamp.com/)
 
 ## What do you mean, a better place?
 
